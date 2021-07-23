@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vineetbillorey
 - 👀 I’m interested in ... making apps
-- 🌱 I’m currently learning ...
+- 🌱 I have 20 years exp in making various apps
 - 💞️ I’m looking to collaborate on ...business apps
 - 📫 How to reach me ...vineet.billorey@gmail.com
 
